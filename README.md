@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .g534..562143423
-7 mj g ewrgew
+7 mj g ewrgewне р
 <!---u67
 mestiaki478/mestiaki478 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
