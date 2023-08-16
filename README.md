@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mestiaki478
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...thtr
+- 💞️ I’m looking to collaborate on ...thtrпgsreg
 - 📫 How to reach me .g534..562143423
 7 mj g ewrgewне рпарт
 <!---u67
