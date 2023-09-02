@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...zdfhrthrthg ewewr
 - 💞️ I’m looking to collaborate on ...thtrпgsregteru trhtrht
-- 📫 How to reach me .g534..562143423etkyje56 
+- 📫 How to reach me .g534..562143423etkyje56  6456tryrt
 7 mj g ewrgewне рпарт
 <!---u67t uykuuy khjghbjkl
 mestiaki478/mestiaki478 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
