@@ -1,6 +1,6 @@
  - 👋 Hi, I’m @mestiaki478
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...zdfhrthrthg ewewr
+- 🌱 I’m currently learning ...zdfhrthrthg ewewrk ryukyu k
 - 💞️ I’m looking to collaborate on ...thtrпgsregteru trhtrht yre
 - 📫 How to reach me .g534..562143423etkyje56  6456tryrt iftyifty6e5y q43yre
 7 mj g ewrgewне рпартb t5tb
